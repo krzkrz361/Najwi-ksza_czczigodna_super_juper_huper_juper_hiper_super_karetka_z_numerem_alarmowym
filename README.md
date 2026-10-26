@@ -1,0 +1,2 @@
+# Najwi-ksza_czczigodna_super_juper_huper_juper_hiper_super_karetka_z_numerem_alarmowym
+KARETA ALBO JĄ TRZCISZ ALBO CIEBIE NIGDY NIE WEŹMIE
